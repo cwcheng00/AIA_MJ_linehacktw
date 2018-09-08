@@ -17,3 +17,12 @@ Cruises:
 Show 2018's remaining cruises
 Focus on 2019's
 
+Cruises:
+1.百威旅遊(多是聯合賣)
+https://www.bwt.com.tw/Travel/tour/Destination/Index.aspx?SN=5|Cruises|sectCruisesSAREA00543
+
+2.雄獅旅遊(有獨家包船)
+https://www.liontravel.com/tourpackage/theme/cruise.aspx
+
+3.雄獅旅遊的麗星郵輪-因為形象有影響,品牌旅行社少賣
+https://www.liontravel.com/promotion/cruise/star/tour.html
